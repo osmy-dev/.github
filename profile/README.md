@@ -14,3 +14,5 @@ You Can invite You friend Join Our Server!
 
 # Join Our Server!
 Join Our Discord: [Discord Group Of OsmyNetwork](https://dsc.gg/osmy)
+
+Notice: Our server has a little Chinese Language!
